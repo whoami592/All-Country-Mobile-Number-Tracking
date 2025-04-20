@@ -7,6 +7,6 @@ Ethical Hacker | Cybersecurity Enthusiast
 
 💻 Sharing tools, scripts, and knowledge to promote cybersecurity awareness.
 
-📫 Connect with me: [ Email Sabaz Ali Khan /Facebook> Sabaz ali khan /Youtube> Sabaz ali khan hacking seris/ Whtsapp no> +92340977722 ]
+📫 Connect with me: [ Email Sabaz Ali Khan /Facebook> Sabaz ali khan /Youtube> Sabaz ali khan hacking seris/ Whtsapp no> +923409777222 ]
 
 🛡️ Advocate for privacy and data protection.
